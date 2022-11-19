@@ -1,1 +1,1 @@
-Akun tumbal a.k.a. login-sana-login-sini. Main account at [@wewnumam](https://github.com/wewnumam)
+Akun tumbal a.k.a. login-sana-login-sini. Main account at [github.com/wewnumam](https://github.com/wewnumam)
